@@ -1,0 +1,7 @@
+# Why Can’t a Twenty-One Year old Run for the US House of Representatives? – The Sexy Politico
+In the Senate we have four men who has skirted the age requirement. [Henry Clay](https://en.wikipedia.org/wiki/Henry_Clay#Election_and_leadership), who only served two months (December 1806- March 1807) in the Senate, was 29 years 261 days old when he took his seat, so pretty close to 30. [Armistead Mason](https://en.wikipedia.org/wiki/Armistead_Thomson_Mason) was 28 years 171 day when he took his seat from January 1816- March 1817. It was known at the time that he was Constitutionally underage. [John J Critteden](https://en.wikipedia.org/wiki/John_J._Crittenden#Early_political_career) was 29 yeas 175 days when he took office from March 1817-November 1818. The governor didn’t realize Critteden was underage and once he did he recalled him back to Kentucky. Creittenden served in the Senate later on in life. [John Eaton](https://en.wikipedia.org/wiki/John_Eaton_(politician)#Senate_career) was 28 yeas 151 days when he took his seat from November 1818- March 1821. The current youngest member of the Senate is [Jon Ossoff](https://en.wikipedia.org/wiki/Jon_Ossoff) from the state of Georgia who was 33 years and 339 days when elected to the Senate.
+
+Notes
+
+wow this was grear
+## 
